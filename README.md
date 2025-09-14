@@ -5,5 +5,5 @@
 
 - 📫 How to reach me: ...
 - [LinkedIn](www.linkedin.com/in/kushal-n-patel)
-- [Email](kushal.patel3121@gmail.com)
+- [Email](kushalpatel.3096@gmail.com)
 
